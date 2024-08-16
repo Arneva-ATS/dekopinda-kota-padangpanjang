@@ -1,1 +1,1 @@
-# dekopinda-kota-padangpanjang
+# dekopinda-karanganyar
